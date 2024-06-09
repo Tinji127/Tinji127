@@ -7,6 +7,7 @@
 - ⚡ Fun fact: ...
 
 <!---
-Tinji127/Tinji127 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Tinji127/Tinji127 is a ✨ special ✨ repository because its `md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+yea don't fuck with 💯 _^_____^!!_%!!_!!
